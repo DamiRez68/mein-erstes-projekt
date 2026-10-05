@@ -14,7 +14,7 @@ Dienstag – Freitag: 9.00 – 12.00 / 14.30 – 18.00 Uhr
 Samstag: nach Vereinbarung
 Sonntag: geschlossen
 
-Termine: [Telefon] · damiano@rezzoli.ch
+Termine: +41 (0)81 834 55 20 · [info-email]
 
 Im Anhang finden Sie einen Gestaltungsvorschlag (PDF). Wenn möglich, bitten wir Sie, Stil, Farbe und Grösse der bisherigen Beschriftung beizubehalten und uns vor der Produktion einen Gut-zum-Druck zu senden.
 
@@ -23,4 +23,4 @@ Könnten Sie uns bitte auch Kosten und Lieferzeit mitteilen und ob die Montage s
 Vielen Dank und freundliche Grüsse
 
 Damiano Rezzoli
-damiano@rezzoli.ch
+[info-email]
