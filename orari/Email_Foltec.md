@@ -14,7 +14,7 @@ Martedì – Venerdì: 9.00 – 12.00 / 14.30 – 18.00
 Sabato: su appuntamento
 Domenica: chiuso
 
-Appuntamenti: +41 (0)81 834 55 20 · [info-email]
+Appuntamenti: +41 (0)81 834 55 20 · info@rezzoli.ch
 
 In allegato trovate una proposta di impaginazione (PDF). Vi chiediamo di mantenere lo stesso stile, colore e dimensioni dell'adesivo attuale, se possibile, e di inviarci una bozza prima della produzione.
 
@@ -23,4 +23,4 @@ Ci potete anche indicare costi e tempi di consegna, e se la posa/rimozione del v
 Grazie mille e cordiali saluti
 
 Damiano Rezzoli
-[info-email]
+info@rezzoli.ch
